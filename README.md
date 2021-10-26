@@ -6,5 +6,5 @@
 ## Find me around the web 🌎
 
 - Travel diaries and creativity showcased on <a href="https://www.instagram.com/shanuj_kv">Instagram</a> ✈️
-- Sharing professional updates on <a href="www.linkedin.com/in/mohammedshanuj/">LinkedIn</a> 💼
+- Sharing professional updates on <a href="https://www.linkedin.com/in/mohammedshanuj/">LinkedIn</a> 💼
 - Reach out on  <a href="mailto:sanusanukv8@gmail.com">Gmail</a> 📮
